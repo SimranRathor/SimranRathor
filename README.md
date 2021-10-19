@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SimranRathor
+- 👀 I’m interested in learning newthings,new words and enchaning skills.
+- 🌱 I’m currently pursuing B.tech CSE  with specialization in Data Science(AIML) with Upgrade
+- 📫 How to reach me on https://www.linkedin.com/in/simran-rathore-936680221/ gmail: simranrathore2020@gmail.com
